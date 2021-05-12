@@ -6,7 +6,7 @@
 - 💬 Ask me about Anything 
 - 📫 How to reach me: pablomishi123@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: My freind's great uncle's cousin is Jeff Goldblum's doctor. 
+- ⚡ Fun fact: My friend's great uncle's cousin is Jeff Goldblum's doctor. 
 
 
 #Hello
