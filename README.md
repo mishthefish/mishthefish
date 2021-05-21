@@ -9,3 +9,4 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: My friend's great uncle's cousin is Jeff Goldblum's doctor. 
 - Linkedin: 
+- Stackoverflow: https://stackoverflow.com/users/14531468/mishifishy
