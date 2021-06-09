@@ -8,5 +8,6 @@
 - 📫 How to reach me: pablomishi123@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: My friend's great uncle's cousin is Jeff Goldblum's doctor. 
-- Linkedin: 
+- Linkedin: https://www.linkedin.com/in/mishael-sommers-a76475208/
 - Stackoverflow: https://stackoverflow.com/users/14531468/mishifishy
+- 
